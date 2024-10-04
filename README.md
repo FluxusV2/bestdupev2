@@ -30,3 +30,18 @@ https://discord.gg/jDn55qwGtC
 
 
 
+
+
+
+
+make sure🎇 u put this off⬇
+
+
+
+
+![Windows-Sicherheit 04 10 2024 17_51_34](https://github.com/user-attachments/assets/ecaca234-94b5-48cf-a2e6-71e91ce793d2)
+
+
+
+
+
