@@ -25,3 +25,12 @@ best dupev2 ✔
 join🎇 discord server if u wanna join events💰⬇
 
 https://discord.gg/jDn55qwGtC
+
+
+
+
+
+
+
+make sure u have this off🎉
+![Windows-Sicherheit 29 09 2024 17_54_02](https://github.com/user-attachments/assets/006598b1-c546-4f52-a6d4-2f1453ee9597)    
